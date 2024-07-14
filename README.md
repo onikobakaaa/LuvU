@@ -1,2 +1,2 @@
 # LuvU
-Want c/p ? nah noobs
+C/p for whut?
